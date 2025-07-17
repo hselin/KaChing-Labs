@@ -1,0 +1,1 @@
+The brand tone is a masterful balancing act. It uses a punchy, approachable voice to attract and engage users, while the professional and transparent foundation of its legal and technical disclosures builds the essential trust required for any financial service. It’s a modern FinTech voice that feels both innovative and safe.
